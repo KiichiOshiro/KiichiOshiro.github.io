@@ -1,0 +1,1 @@
+# KiichiOshiro.github.io
